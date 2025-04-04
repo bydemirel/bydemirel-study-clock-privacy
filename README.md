@@ -1,1 +1,0 @@
-# bydemirel-study-clock-privacy
